@@ -48,6 +48,7 @@
 ## 🚀 Projects
 
 *Exciting projects coming soon!*
+
 ---
 
 ## 📫 Let's Connect!
